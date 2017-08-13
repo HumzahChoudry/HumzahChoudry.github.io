@@ -5,16 +5,17 @@ date:   2017-08-11 15:24:40 +0000
 categories: jekyll update
 ----
 
-For all 10 people who care, we are kicked off the EPL season today. It was an amazing opener featuring Arsenal and Leichester City. 
+If you haven't hopped on the EPL train yet, it's not too late. The season opener was a rollercoaster ride of emotions with a fantastic finish. You don't believe me, check out the highlights(https://www.youtube.com/watch?v=dO062ENe3jM). 
 
-It was a back and forth game that ended with Arsenal scoring 2 goals in the last 10 minutes to come from behind to win 4-3. Emotions were high. If you havent hopped on the EPL train yet its not too late. The season is young.
-
-Highlights here: https://www.youtube.com/watch?v=dO062ENe3jM
+There's plenty more EPL action yet to come and it makes great company for day drinking before college football season really kicks off. So for those of you who need it here are a few more games to check out this weekend.
 
 Games to watch this weekend:
   Saturday - Liverpool v Watford, Chelsea v Burnley
   
   Sunday - ManU v West Ham
+
+
+
   
   
     
