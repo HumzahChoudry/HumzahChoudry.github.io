@@ -1,9 +1,4 @@
----
-layout: post
-title:  "EPL season opener"
-date:   2017-08-11 15:24:40 +0000
-categories: jekyll update
-----
+
 
 If you haven't hopped on the EPL train yet, it's not too late. The season opener was a rollercoaster ride of emotions with a fantastic finish. You don't believe me, check out the highlights(https://www.youtube.com/watch?v=dO062ENe3jM). 
 
