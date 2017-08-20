@@ -4,5 +4,5 @@ Huddlesfield Town, the newly promoted side has had a wonderful start to their En
 
 *Oh, what a day... what a lovely day!*
 
-Now I'm not saying they're going to be the next Leichester City, but who doesn't love a good underdog team. The beauty of the Premier League is that at the end of the season we'll have to say bye to 3 teams. I am afraid with strong showings from some of the promoted teams my secret second love Crystal Palace may be getting the boot at the end of the season. 
+Now I'm not saying they're going to be the next Leichester City, but who doesn't love a good underdog team. The beauty of the Premier League is that at the end of the season we'll have to say bye to 3 teams. I'm afraid with strong showings from some of the newly promoted teams my secret second love Crystal Palace may be getting the boot at the end of the season. 
 
