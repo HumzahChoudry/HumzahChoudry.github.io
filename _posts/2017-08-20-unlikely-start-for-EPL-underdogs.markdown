@@ -1,4 +1,4 @@
-Huddlesfield Town, the newly promoted side, is enjoying wonderful start to their English campaign. After a goal by <a href="https://www.magicalquote.com/wp-content/uploads/2015/06/Nux.jpg">Nux from Mad Max</a> aka Aaron Mooy, the Terriers were able secure a victory and start their campaign 2-0. 
+Huddlesfield Town, the newly promoted side, is enjoying wonderful start to their English campaign. After a goal by <a href="https://www.magicalquote.com/wp-content/uploads/2015/06/Nux.jpg" target="_blank">Nux from Mad Max</a> aka Aaron Mooy, the Terriers were able secure a victory and start their campaign 2-0. 
 
 ![Aaron Mooy](http://i1.examiner.co.uk/incoming/article12244212.ece/ALTERNATES/s482b/JS106095023.jpg)
 
