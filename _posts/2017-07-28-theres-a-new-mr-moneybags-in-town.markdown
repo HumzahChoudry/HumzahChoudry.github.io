@@ -1,6 +1,6 @@
 Have you ever heard that joke:
 
->You know what's 6 inches long, 2 inches wide and drive women wild?
+>You know what's 6 inches long, 2 inches wide and drives women wild?
 
 >A dollar bill
 
