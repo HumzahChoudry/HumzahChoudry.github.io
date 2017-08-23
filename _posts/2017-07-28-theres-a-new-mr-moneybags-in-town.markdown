@@ -4,7 +4,7 @@ Have you ever heard that joke:
 
 >A dollar bill
 
-You know what else drives women wild. 260 million dollar biils. Neymar has officially been released for a record breaking 222 million euros (~260 USD). Yeaaaah and that is just to have him released so PSG can sign him. We can only assume Neymar's contract will include a small province in France and a few Qatari oil fields. 
+You know what else drives women wild. 260 million dollar biils. Neymar has officially been released for a record breaking 222 million euros (~260 USD). Yeaaaah and that is just to have him released so PSG can sign him. We can only assume Neymar's contract will include a small province in France, a few Qatari oil fields and the rights to the iron throne.
 
 If Neymar was a restaurant on google maps he would be one of those restaurants you immediately back out of because it has too many $'s. I don't care how if it has one of those fancy "Z" things on it, I can't spend my rent on a meal.
 
