@@ -10,5 +10,5 @@ Take Aways:
 
 <li>Tottenham got fuuuuuucked. They placed 2nd in the EPL yet end up 3rd in their group</li>
 
-<li>Liverpool got a dream of a draw as well, hopefully they don't Liverpool it up</li>
+<li>Liverpool got a dream of a draw. Hopefully they don't Liverpool it up</li>
 </ul>    
