@@ -1,0 +1,3 @@
+Cristiano Ronaldo scores another beauty. You know those shots so perfect that the goalie doesnt even bother trying to save it. It's the same move same finish as he did against Barcelona a week ago. At this point if you see Cristiano cutting into the box, form tackle him. Wrap him up low, and drive the legs. It's the only chance you've got.
+
+<div style="width: 100%; height: 0px; position: relative; padding-bottom: 56.227%;"><iframe src="https://streamable.com/s/tkl6o/sbexqo" frameborder="0" width="100%" height="100%" allowfullscreen style="width: 100%; height: 100%; position: absolute;"></iframe></div>
