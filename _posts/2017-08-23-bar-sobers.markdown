@@ -1,4 +1,4 @@
-At what age is it to no longer okay to stop liking someone for being sober?
+At what age is it inappropriate to not like someone for being sober? Because I'm not there yet.
 
 I found myself asking this question last week. It was at a bar post kickball league. Every week after my team gets done crushing our opponents, we have a game of flip cup afterwards. All was going well and good until I realized one of the guys on the other team was pouring water in his cup. He had been pouring water in his cup the whole time. This guy was anchoring the team with sobriety. Now we all know a few drinks can help us get into our zone, but this game was way past everyones zone. Homie on the other hand has no zone. He only has one state of mind. Is that cheating? It's at least worth an in mind complaint.
 
