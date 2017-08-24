@@ -1,6 +1,6 @@
 Here it is boys. Some exciting cross league soccer coming your way. 
 
-![Champions League Draw 2017](https://image.ibb.co/h2HUsQ/champions_league_draw_17_18.jpg" alt="champions_league_draw_17_18)
+![Champions League Draw 2017](https://image.ibb.co/h2HUsQ/champions_league_draw_17_18.jpg)
 
 Take Aways:
 <ul>
