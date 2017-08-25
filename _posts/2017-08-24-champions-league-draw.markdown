@@ -8,7 +8,7 @@ Take Aways:
 
 <li>Bayern vs PSG will be much more exciting this year. It will be a great guage to see how big of an impact Neymar really has</li>
 
-<li>Tottenham got fuuuuuucked. They placed 2nd in the EPL yet end up 3rd in their group</li>
+<li>Tottenham got fuuuuuucked
 
 <li>Liverpool got a dream of a draw. Hopefully they don't Liverpool it up</li>
 </ul>    
