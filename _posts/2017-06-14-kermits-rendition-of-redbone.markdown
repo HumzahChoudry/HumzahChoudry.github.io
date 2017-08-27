@@ -1,4 +1,4 @@
-So I was listening to music on YouTube, as I do because I'm too broke to afford Spotify. I was listening to Redbone by Childish Gambino and I saw something peculiar. One of those things on the internet that you just have to click on. The title read "What Redbone would sound like sung by Kermit the Frog". Obviously I clicked on it and...well, I wasn't disappointed. 
+So I was listening to music on YouTube, as I do because I'm too broke to afford Spotify. I was listening to Redbone by Childish Gambino when I saw something peculiar. One of those things on the internet that you just have to click on. The title read "What Redbone would sound like sung by Kermit the Frog". Obviously I clicked on it and...well, I wasn't disappointed. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/_FhgEeAj9ng" frameborder="0" allowfullscreen></iframe>
 
