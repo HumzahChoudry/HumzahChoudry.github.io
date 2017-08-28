@@ -1,9 +1,8 @@
-There are a lot of things in this world that bother me. Poverty, racism, having to take a dump while on the train but you're still 45 mins away from your house. 
+There are a lot of things in this world that bother me. Poverty, corruption, that one hair you missed while shaving. 
 
-I've been thinking a lot lately about the price of mozzerlla sticks. Who tf set these prices. I love mozz sticks. 
-There's nothing more delicious to me than melty, stringy, fried cheese. If it were up to me, faucets would pour running mozzeralla rather than water. That's including my shower.
-That being said, I'll be god damned if I'm going to pay 12 dollars for 6 mozz sticks. The prices are outrageous. 
-I'm just saying if I can somehow get 20 chicken nuggets for 5 bucks, there should be a way to get 50 mozz sticks for the same price.
+I've been thinking a lot lately about the price of mozzerlla sticks. What monster set these prices. There's nothing more delicious to me than melty, stringy, fried cheese. If it were up to me, faucets would pour running mozzeralla rather than water. That's including my shower.
+I love mozz sticks, but I'll be god damned if I'm going to pay 12 dollars for 6 mozz sticks. The prices are outrageous. 
+If I can somehow get 20 chicken nuggets for 5 bucks, there should be a way to get 50 mozz sticks for the same price.
 
 Look I even did the math, prices are per stick:
 1 oz of cheese costs ~30 cents
