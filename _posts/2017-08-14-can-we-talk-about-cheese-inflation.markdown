@@ -4,17 +4,17 @@ I've been thinking a lot lately about the price of mozzerlla sticks. What monste
 I love mozz sticks, but I'll be god damned if I'm going to pay 12 dollars for 6 mozz sticks. The prices are outrageous. 
 If I can somehow get 20 chicken nuggets for 5 bucks, there should be a way to get 50 mozz sticks for the same price.
 
-Look I even did the math, prices are per stick:
+<p>Look I even did the math, prices are per stick:</p>
 
-1 oz of cheese costs ~30 cents
+<p>1 oz of cheese costs ~30 cents</p>
 
-Breading, c'mon were talkin change here .07
+<p>Breading, c'mon were talkin change here .07</p>
 
-Herbs, eh .05
+<p>Herbs, eh .05</p>
 
-Eggs, .10 even though I think it would be less
+<p>Eggs, .10 even though I think it would be less</p>
 
-So we come out to 52 cents per stick.
+<p>So we come out to 52 cents per stick</p>
 
 
 DOLLAR MOZZ STICKS OR GFTO.
