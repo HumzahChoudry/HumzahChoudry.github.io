@@ -14,7 +14,6 @@ If I can somehow get 20 chicken nuggets for 5 bucks, there should be a way to ge
 
 <p>Eggs, .10 even though I think it would be less</p>
 
-<p>So we come out to 52 cents per stick</p>
-
+<p>So we come out to 52 cents per stick. $2 per stick is criminal. Do you really need to mark it up 400 percent? Are the 8 dollar "craft" beers not making you enough money? Craft beers just beer made by someone who decided to start brewing in 2011 anyway, they should be sold at a discount if anything. I'm getting off subject, all I'm saying is that we know we get upcharged on prices. $4 per Coors light, okay I'll live. $12 for a chicken sandwhich, fine I'll pay it. I just can't bring myself to purchase a mozzerlla stick for 2 dollars, I know I'm irresponsible with my money, but even I have my limits.</p>
 
 DOLLAR MOZZ STICKS OR GFTO.
