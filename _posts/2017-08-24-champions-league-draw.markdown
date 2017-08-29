@@ -2,7 +2,7 @@ Here it is boys. Some exciting cross league action coming your way.
 
 ![Champions League Draw 2017](https://image.ibb.co/h2HUsQ/champions_league_draw_17_18.jpg)
 
-Champions league is back with an intriguing set of matches. First off the city of Manchester should be partying right now. Their round of 16 tickets may as well be stamped. The best group stage match ups will be PSG v Bayern, so we can see how much of a difference Neymar really makes and Juve v Barca, so we can see how much of a difference Neymar really makes.
+Champions league is back with an intriguing set of matches. The city of Manchester should be partying right now. Their round of 16 tickets may as well be stamped. The best group stage match ups will be PSG v Bayern, so we can see how much of a difference Neymar really makes and Juve v Barca, so we can see how much of a difference Neymar really makes.
 
 The obvious group of death would be group H. Tottenham getting effed, as they do, but this time it wasnt by themselves. They'll have a lot to prove and I think that match up against Dortmund will be huge for them on an international level. If they want to be one of the big boys they definitely have the opportunity to prove it with this draw. 
 
